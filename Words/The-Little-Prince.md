@@ -77,3 +77,55 @@
 
 ## absurd
 * stupid and unresaonable, or silly in a humorous way
+
+## a sheet of
+* a large, wide mass of something such as fire or ice
+
+## fountain
+* a steam of water that is forced up into the air through a small hole, especially for decorative effect, or the structure in a lake or pool from which this flows
+
+## decorative
+* made to look attractive
+
+## funtain pen
+* a pen whose nib (= the point at the end that you write with) is supplied with ink from a container inside it
+
+## chap
+* a man
+
+## crossly
+* angrily
+
+## astound
+* to surprise or shock someone very much
+
+## cumbersome
+* awkward because of being large, heavy, or not effective
+
+## sickly
+* weak, unhealthy, and often sick
+
+## gently
+* clamly, kindly, or softly
+
+## indulgent
+* allowing someone to have or do what they want, especially when this is not good for them
+
+## horn
+* a hard, pointed, often curved part that grows from the top of the head of some animals, or the hard substance of which a horn is made
+
+## exhausted
+* extremely tired
+
+## toss off
+* to give someone sexual pleasure by rubbing their sex organs, or to do this to yourself(do quickly) 
+
+## bend
+* to move your body or part of your body so that it is not straight
+
+#  Chapter 3
+## reveal
+* to make known or to show something that is surpring ot that was previously secret
+
+## peal
+* a long loud sound or series of sounds, especially of laughter or thunder
