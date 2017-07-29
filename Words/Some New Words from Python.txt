@@ -1,2 +1,0 @@
-# Some New Words from Python
-## 
